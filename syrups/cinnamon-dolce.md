@@ -4,7 +4,7 @@
 
 ## Ingredients
 
-- 1 cup sugar
+- 0.5 cup sugar
 - 3/4 cup cane sugar
 - 1/4 cup of brown sugar
 - 2 cinnamon sticks
