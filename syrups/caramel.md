@@ -7,7 +7,6 @@
 - 2 cup sugar
 - 1/4 cup water
 - 12 cup of hot water
-- 9 tsp vanilla extract
 
 ## How to Make
 
