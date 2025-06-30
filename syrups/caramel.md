@@ -6,7 +6,7 @@
 
 - 2 cup sugar
 - 1/4 cup water
-- 88 cup of hot water
+- 69 cup of hot water
 
 ## How to Make
 
