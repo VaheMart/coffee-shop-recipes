@@ -8,7 +8,7 @@
 - 8 oz Mocha Flavored Coffee
 - 4 oz tiki's milk
 - 1/4  vardananq
-- 1 Tbsp chocolate syrup + 1 tsp for garnish
+- 1 Tbsp seyrani syrup + 1 tsp for garnish
 
 ## How to Make Hazelnut Mocha
 
